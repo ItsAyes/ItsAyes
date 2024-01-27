@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on IT
 - 📫 How to reach me its.sah70@gmail.com
 - 😄 Pronouns: #unknown
-- ⚡ motivation: be the best version of yourself! be who you're 🌚
+- ⚡ motivation: Be the best version of yourself! be who you're 🌚
 
 <!---
 ItsAyes/ItsAyes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
