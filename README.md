@@ -6,7 +6,7 @@
 - 😄 Pronouns: #unknown
 - ⚡ motivation:
 -     Be the best version of yourself!
--     If it becomes extrremely hard know that you're too near.
+-     If it becomes on top hard remember that you're too near.
 
 <!---
 ItsAyes/ItsAyes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
