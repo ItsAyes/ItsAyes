@@ -1,6 +1,6 @@
 - 👋 Hi, @ItsAyesha
 - 👀 I’m interested in programming 
-- 🌱 I’m currently programming languages
+- 🌱 I’m currently learning programming languages
 - 💞️ I’m looking to collaborate on IT
 - 📫 How to reach me its.sah70@gmail.com
 - 😄 Pronouns: #unknown
